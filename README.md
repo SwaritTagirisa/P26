@@ -1,14 +1,14 @@
 # Creme brulee
 
-# P26 master chef junior
+ P26 master chef junior
 
-# Ingredients
-# 2 cartons double cream, 
-# 1 large (284ml) plus 1 small (142ml) 
-# 100ml whole milk 
-# 1 vanilla pod 
-# 5 large egg yolks 
-# 50g golden caster sugar, plus extra for the topping
+ Ingredients
+ 2 cartons double cream, 
+ 1 large (284ml) plus 1 small (142ml) 
+ 100ml whole milk 
+ 1 vanilla pod 
+ 5 large egg yolks 
+50g golden caster sugar, plus extra for the topping
 
 STEP 1 Heat the oven to 180C/160C fan/gas 4. Sit four 175ml ramekins in a deep roasting tin at least 7.5cm deep (or a large deep cake tin), one that will enable a baking tray to sit well above the ramekins when laid across the top of the tin. 
 STEP 2 Pour the large and small cartons of double cream into a medium pan with the milk. 
